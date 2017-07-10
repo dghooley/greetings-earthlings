@@ -3,5 +3,5 @@
 hello, all, 
 
 I believe in decluttering. 
-Put the object in it's place where it serves a purpose. If it (the object) has no place or "home" and serves no purpose, then in is not necessary. 
+If an object in it's right place and serves a purpose, leave it along. If it (the object) has no place or "home" and serves no purpose, then it is unnecessary. 
 Remove it.
